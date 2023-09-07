@@ -1,7 +1,7 @@
 # 2023BostonSeafoodFest
 2023 Boston Seafood Festival Travel Plan
 
-Date: Sunday, September 10 · 11am - 6pm EDT
+Time: Sunday, September 10 · 11am - 6pm EDT
 
 Venue：Boston Fish Pier Boston, MA 02210
 
