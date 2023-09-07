@@ -1,8 +1,6 @@
 # 2023BostonSeafoodFest
 2023 Boston Seafood Festival Travel Plan
-
-Data: Sunday, September 10 · 11am - 6pm EDT
-
+Date: Sunday, September 10 · 11am - 6pm EDT
 Venue：Boston Fish Pier Boston, MA 02210
 集合时间：9.10周日11:00 AM （咱们早点集合一起排队 新闻上说往年1万人 中午过去排队200英尺） 
 集合地点：Boston Fish Pier门口
@@ -10,4 +8,8 @@ Venue：Boston Fish Pier Boston, MA 02210
 
 官方购票 ：点击官网 https://www.bostonseafoodfestival.org/ 
 进入一下页面
+
+
+Conclusion：推荐73.9的General Admission + Lobster Bake.  另外VIP的话会不会有特别通道，导致大家不能在一起活动。
+
 
