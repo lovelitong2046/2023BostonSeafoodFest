@@ -8,8 +8,7 @@ Venue：Boston Fish Pier Boston, MA 02210
 
 官方购票 ：点击官网 https://www.bostonseafoodfestival.org/ 
 进入一下页面
-
-
+![Screenshot 2023-09-08 at 02 31 12](https://github.com/lovelitong2046/2023BostonSeafoodFest/assets/5799923/293ff9c7-63ed-4d0e-af3c-8080d4cf91b5)
 Conclusion：推荐73.9的General Admission + Lobster Bake.  另外VIP的话会不会有特别通道，导致大家不能在一起活动。
 
 
