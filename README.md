@@ -5,7 +5,7 @@ Time: Sunday, September 10 · 11am - 6pm EDT
 
 Venue：Boston Fish Pier Boston, MA 02210
 
-集合时间：9.10周日 11AM排队门口（新闻上说往年1万人 中午过去排队200英尺 所以早早过去 吃看门最新鲜的） 
+集合时间：9.10周日 11AM排队门口（新闻上说往年1万人 中午过去排队200英尺 所以早早过去 吃刚开门最新鲜的！！） 
 
 集合地点：Boston Fish Pier门口
 
