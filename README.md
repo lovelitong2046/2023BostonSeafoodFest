@@ -28,4 +28,7 @@ Conclusion：推荐73.9的General Admission + Lobster Bake.  另外VIP的话会�
 乱七八糟的活动时刻表
 ![WechatIMG110](https://github.com/lovelitong2046/2023BostonSeafoodFest/assets/5799923/5ea35a1f-3d30-49aa-b98b-44a1c5cd007e)
 
-
+Annual Italian Feast！ 在Warrent St Cambridge
+小吃
+19:00 军乐队表演 迎Saint  不知道是啥
+19：45 乐队表演 + 蹦迪！
