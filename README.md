@@ -1,5 +1,6 @@
 # 2023BostonSeafoodFest
-2023 Boston Seafood Festival Travel Plan
+2023 Boston Seafood Festival Travel Plan+ Annual Italian Feast
+
 
 Time: Sunday, September 10 · 11am - 6pm EDT
 
@@ -17,6 +18,10 @@ Venue：Boston Fish Pier Boston, MA 02210
 票面分析
 ![Screenshot 2023-09-08 at 02 41 56](https://github.com/lovelitong2046/2023BostonSeafoodFest/assets/5799923/55dd2d30-e280-42e2-98c3-9d005875519e)
 
+Warrent St Cambridge
+小吃 
+19:00 军乐表演
+19:45 开始乐队演唱+蹦迪
 
 Conclusion：推荐73.9的General Admission + Lobster Bake.  另外VIP的话会不会有特别通道，导致大家不能在一起活动。
 
